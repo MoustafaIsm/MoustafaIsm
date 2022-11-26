@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **moustafaism013@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1_CZVLBPUSxvTZeiPlWBbmePVb8bw-Yvz/view?usp=share_link)
+- 📄 Discover my experiences [here](https://drive.google.com/file/d/1_CZVLBPUSxvTZeiPlWBbmePVb8bw-Yvz/view?usp=share_link)
 
 - ⚡ Fun fact **4 space indentation is better than 2 space indentation**
 
